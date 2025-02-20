@@ -1,2 +1,0 @@
-# Rimsha-Enterprises
-College Project
